@@ -1,6 +1,6 @@
 🌱 I love learning as a process and mostly about new things and very dedicated to my work...
 
-🔭 I’m currently working as an Intern at Genpact..
+🔭 I’was  working as an Intern at Genpact..
 
 🌱 I’m currently learning Machine Learning and Deep Learning
 
